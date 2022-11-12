@@ -1,2 +1,2 @@
-# permission
-Pro kontrol fikri
+# p
+P
